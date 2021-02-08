@@ -1,0 +1,1 @@
+This Eggless Red Velvet Cake is moist, rich, and amazingly tasty! Two lovely layers of tender vibrant sponge red cake with fluffy cream cheese frosting. I promise you will not miss the eggs. This easy dessert is the perfect showstopper for any occasion!
